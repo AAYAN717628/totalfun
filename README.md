@@ -1,0 +1,2 @@
+# totalfun
+TOTAL FUN DOCUMENTION
